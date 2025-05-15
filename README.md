@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...conhecimento de IA
 - 🌱 I’m currently learning ...novas ferramentas de  IA
 - 💞️ I’m looking to collaborate on ...projetos para minha profissão
-- 📫 How to reach me ...5595991224389
+- 📫 How to reach me ...hudadriano@yhaoo.com.br
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
